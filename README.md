@@ -1,1 +1,1 @@
-# CognifyzTechnologies
+# Cognifyz Technologies
